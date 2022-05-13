@@ -1,3 +1,3 @@
 #love
 
-love endures.
+love endures!
